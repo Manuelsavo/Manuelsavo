@@ -7,7 +7,7 @@ I scope, architect, and personally build networks and infrastructure: firewall p
 
 Based in Chicago. Available for full-time roles, consulting, and freelance work.
 
-[manuelsavo.com](https://manuelsavo.com) · [LinkedIn](https://www.linkedin.com/in/manuelsavolainen)
+[manuelsavo.com](https://manuelsavo.com) · [studiosavo.com](https://studiosavo.com) · [LinkedIn](https://www.linkedin.com/in/manuelsavolainen)
 
 ### Projects
 
